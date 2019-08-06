@@ -14,20 +14,20 @@ Now,I want to talk to you about how to keep healthy when you are young.It will b
   * [long distance run in Tsinghua University](http://news.tsinghua.edu.cn/publish/thunews/9650/2019/20190708131638661555368/20190708131638661555368_.html)
   * [famous runner:Haruki Murakami](https://baike.baidu.com/item/%E6%9D%91%E4%B8%8A%E6%98%A5%E6%A0%91/1070)  
   ![村上春树在跑步](http://z.hangzhou.com.cn/ezgc/2014/mls/content/2014-11/05/content_5513812.htm)
-* [relevant research](http://news.bioon.com/article/6738987.html)
+* [relevant research](http://news.bioon.com/article/6738987.html)  
 ***
 ## &#127869; No.2 Resonable diet
 * [healthy eating habits](https://baike.baidu.com/item/%E5%81%A5%E5%BA%B7%E9%A5%AE%E9%A3%9F%E4%B9%A0%E6%83%AF/2314752?fr=aladdin)
   * [Mediterranean diet](https://baike.baidu.com/item/%E5%9C%B0%E4%B8%AD%E6%B5%B7%E5%BC%8F%E9%A5%AE%E9%A3%9F/1839381?fr=aladdin)
 * [unhealthy food](https://baike.baidu.com/item/%E5%8D%81%E5%A4%A7%E5%9E%83%E5%9C%BE%E9%A3%9F%E7%89%A9/7314558?fromtitle=%E5%8D%81%E5%A4%A7%E5%9E%83%E5%9C%BE%E9%A3%9F%E5%93%81&fromid=4158748&fr=aladdin)
 * [relavent research](http://news.bioon.com/article/6742094.html)  
-![饮食](http://www.zcool.com.cn/work/ZMTc2ODQxMjg%3D.html)
+![饮食](http://www.zcool.com.cn/work/ZMTc2ODQxMjg%3D.html)  
 ***
 ## &#8986; No.3 Enough sleep
 * [sleep:a serious problem that can be easily ignored](https://baijiahao.baidu.com/s?id=1639376100562789943&wfr=spider&for=pc)
 * [benefits of enough sleep](https://www.sohu.com/a/202576109_771379)
 * [relavent research](http://news.bioon.com/article/6739029.html)  
-![睡觉觉](http://image.so.com/view?q=%E7%8C%AB%E5%92%AA%E7%9D%A1%E8%A7%89&src=srp&correct=%E7%8C%AB%E5%92%AA%E7%9D%A1%E8%A7%89&ancestor=list&cmsid=a71bbbfef41a2d991b3ef67a403940f7&cmran=0&cmras=0&cn=0&gn=0&kn=50&fsn=130&adstar=0&clw=251#id=0d167a627b2f7f5323ab93ed5378b95a&currsn=0&ps=103&pc=103)
+![睡觉觉](http://image.so.com/view?q=%E7%8C%AB%E5%92%AA%E7%9D%A1%E8%A7%89&src=srp&correct=%E7%8C%AB%E5%92%AA%E7%9D%A1%E8%A7%89&ancestor=list&cmsid=a71bbbfef41a2d991b3ef67a403940f7&cmran=0&cmras=0&cn=0&gn=0&kn=50&fsn=130&adstar=0&clw=251#id=0d167a627b2f7f5323ab93ed5378b95a&currsn=0&ps=103&pc=103)  
 ***
 >relevant material from Baidu,Sohu and Bioon  
 >relevant material from Baidu Wenku
