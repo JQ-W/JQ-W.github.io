@@ -18,8 +18,8 @@ Now,I want to talk to you about how to keep healthy when you are young.It will b
 ***
 ## No.2 Resonable diet
 * [healthy eating habits](https://baike.baidu.com/item/%E5%81%A5%E5%BA%B7%E9%A5%AE%E9%A3%9F%E4%B9%A0%E6%83%AF/2314752?fr=aladdin)
+  * [Mediterranean diet](https://baike.baidu.com/item/%E5%9C%B0%E4%B8%AD%E6%B5%B7%E5%BC%8F%E9%A5%AE%E9%A3%9F/1839381?fr=aladdin)
 * [unhealthy food](https://baike.baidu.com/item/%E5%8D%81%E5%A4%A7%E5%9E%83%E5%9C%BE%E9%A3%9F%E7%89%A9/7314558?fromtitle=%E5%8D%81%E5%A4%A7%E5%9E%83%E5%9C%BE%E9%A3%9F%E5%93%81&fromid=4158748&fr=aladdin)
-* [Mediterranean diet](https://baike.baidu.com/item/%E5%9C%B0%E4%B8%AD%E6%B5%B7%E5%BC%8F%E9%A5%AE%E9%A3%9F/1839381?fr=aladdin)
 * [relavent research](http://news.bioon.com/article/6742094.html)
 ***
 ## No.3 Enough sleep
