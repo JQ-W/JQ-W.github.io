@@ -28,7 +28,6 @@ Now,I want to talk to you about how to keep healthy when you are young.It will b
 * [relavent research](http://news.bioon.com/article/6739029.html)
 ***
 >relevant material from Baidu,Sohu and Bioon  
-
 >relevant material from Baidu Wenku
 
 ***
