@@ -21,7 +21,6 @@ Now,I want to talk to you about how to keep healthy when you are young.It will b
   * [Mediterranean diet](https://baike.baidu.com/item/%E5%9C%B0%E4%B8%AD%E6%B5%B7%E5%BC%8F%E9%A5%AE%E9%A3%9F/1839381?fr=aladdin)
 * [unhealthy food](https://baike.baidu.com/item/%E5%8D%81%E5%A4%A7%E5%9E%83%E5%9C%BE%E9%A3%9F%E7%89%A9/7314558?fromtitle=%E5%8D%81%E5%A4%A7%E5%9E%83%E5%9C%BE%E9%A3%9F%E5%93%81&fromid=4158748&fr=aladdin)
 * [relevant research](http://news.bioon.com/article/6742094.html)  
-![eating diet](http://p1.so.qhmsg.com/sdr/400__/t01b08ec8c42218d626.gif)
 ***
 ## &#8986; No.3 Enough sleep
 * [sleep:a serious problem that can be easily ignored](https://baijiahao.baidu.com/s?id=1639376100562789943&wfr=spider&for=pc)
