@@ -7,13 +7,13 @@ Now,I want to talk to you about how to keep healthy when you are young.It will b
 ## So if you want to keep health phisically,there are three aspects that I strongly recommend you to think better of...
 ***
 ## No.1 Regular exercise
-### [benifits](https://wenku.baidu.com/view/0c0a4a7ab5daa58da0116c175f0e7cd18425182f.html?from=search)
-### [various exercise](https://baike.so.com/doc/5327389-5562561.html#5327389-5562561-3)
-### My favorite sprots:long distance run
-#### [about marathon](https://baike.baidu.com/item/%E9%A9%AC%E6%8B%89%E6%9D%BE/18579)
-#### [long distance run in Tsinghua University](http://news.tsinghua.edu.cn/publish/thunews/9650/2019/20190708131638661555368/20190708131638661555368_.html)
-#### [famous runner:Haruki Murakami](https://baike.baidu.com/item/%E6%9D%91%E4%B8%8A%E6%98%A5%E6%A0%91/1070)
-### [relevant research](http://news.bioon.com/article/6738987.html)
+### - [benifits](https://wenku.baidu.com/view/0c0a4a7ab5daa58da0116c175f0e7cd18425182f.html?from=search)
+### - [various exercise](https://baike.so.com/doc/5327389-5562561.html#5327389-5562561-3)
+### - My favorite sprots:long distance run
+####  - [about marathon](https://baike.baidu.com/item/%E9%A9%AC%E6%8B%89%E6%9D%BE/18579)
+####  - [long distance run in Tsinghua University](http://news.tsinghua.edu.cn/publish/thunews/9650/2019/20190708131638661555368/20190708131638661555368_.html)
+####  - [famous runner:Haruki Murakami](https://baike.baidu.com/item/%E6%9D%91%E4%B8%8A%E6%98%A5%E6%A0%91/1070)
+### - [relevant research](http://news.bioon.com/article/6738987.html)
 ***
 ## No.2 Resonable diet
 ### [healthy eating habits](https://baike.baidu.com/item/%E5%81%A5%E5%BA%B7%E9%A5%AE%E9%A3%9F%E4%B9%A0%E6%83%AF/2314752?fr=aladdin)
