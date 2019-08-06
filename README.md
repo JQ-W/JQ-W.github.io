@@ -1,6 +1,6 @@
-# Health Guide
+# Health Guide [^All of the Information are Public]
 
-<table><tr><td bgcolor=blue>It is the first time for me to make a web page in GitHub.Exciting and interesting~</td></tr></table>  
+*It is the first time for me to make a web page in GitHub.Exciting and interesting~*  
 
 Now,I want to talk to you about how to keep healthy when you are young.It will be too late if you realize the tremendous importance of phiscal health when you are old or sick.Oh,of course we can't ignore mental health,but it is also relavant to physical health,and the latter is our key point today.  
 ***
