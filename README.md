@@ -1,4 +1,4 @@
-# Health Guide<sup>all of information is public</sup>
+# Health Guide<sup>public</sup>
 
 *It is the first time for me to make a web page in GitHub.Exciting and interesting~*  
 
