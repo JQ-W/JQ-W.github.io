@@ -1,10 +1,10 @@
 # Health Guide
 
-<table><tr><td bgcolor=blue>It is the first time for me to make a web page in GitHub.Exciting and interesting~</td></tr></table>
+<table><tr><td bgcolor=blue>It is the first time for me to make a web page in GitHub.Exciting and interesting~</td></tr></table>  
 
-Now,I want to talk to you about how to keep healthy when you are young.It will be too late if you realize the tremendous importance of phiscal health when you are old or sick.Oh,of course we can't ignore mental health,but it is also relavant to physical health,and the latter is our key point today.
+Now,I want to talk to you about how to keep healthy when you are young.It will be too late if you realize the tremendous importance of phiscal health when you are old or sick.Oh,of course we can't ignore mental health,but it is also relavant to physical health,and the latter is our key point today.  
 ***
-## &#127808; So if you want to keep health phisically,there are three aspects that I strongly recommend you to think better of...
+## &#127808; So if you want to keep health phisically,there are three aspects that I strongly recommend you to think better of...  
 ***
 ## &#127939; No.1 Regular exercise
 * [benifits](https://wenku.baidu.com/view/0c0a4a7ab5daa58da0116c175f0e7cd18425182f.html?from=search)
@@ -30,8 +30,7 @@ Now,I want to talk to you about how to keep healthy when you are young.It will b
 ![睡觉觉](http://image.so.com/view?q=%E7%8C%AB%E5%92%AA%E7%9D%A1%E8%A7%89&src=srp&correct=%E7%8C%AB%E5%92%AA%E7%9D%A1%E8%A7%89&ancestor=list&cmsid=a71bbbfef41a2d991b3ef67a403940f7&cmran=0&cmras=0&cn=0&gn=0&kn=50&fsn=130&adstar=0&clw=251#id=0d167a627b2f7f5323ab93ed5378b95a&currsn=0&ps=103&pc=103)  
 ***
 >relevant material from Baidu,Sohu and Bioon  
->relevant material from Baidu Wenku
-
+>relevant material from Baidu Wenku  
 ***
 For more detailed information,you can contact **Ivy**
 
