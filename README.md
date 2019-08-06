@@ -2,7 +2,7 @@
 
 这是我的第一次编辑
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+无论如何，实在是一件有趣的经历
 
 ### Markdown
 
